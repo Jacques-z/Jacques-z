@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JaquesZ
+- 👋 Hi, I’m @Jacques-z
 - 👀 I’m interested in coding and French
 - 🌱 I’m currently learning Riemannian geometry
 - 💞️ I’m looking to collaborate on ..., well I have no idea.
