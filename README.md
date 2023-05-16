@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jacques-z
 - 👀 I’m interested in coding and French
-- 🌱 I’m currently preparing for an exam.
+- 🌱 I’m currently... I don't know.
 - 💞️ I’m looking to collaborate on ..., well I have no idea.
 - 📫 How to reach me? Maybe you can leave a comment below and I'll get in touch with you one day, I don't know.
 
